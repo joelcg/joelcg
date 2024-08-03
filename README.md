@@ -1,1 +1,2 @@
-👋 Hi, I’m @joelcg
+👋 Hi
+
